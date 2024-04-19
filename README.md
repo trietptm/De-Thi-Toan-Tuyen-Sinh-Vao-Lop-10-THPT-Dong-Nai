@@ -48,6 +48,9 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/3531226d-97e8-4f4c-86d3-dee7c91ceeb8)
 
+## 2010-2011:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/7971c276-572b-4e99-885b-21423c9aa6aa)
+
 ## 2009-2010:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/6941d80b-bcc3-4b57-b731-ef8f94c3b0c9)
 
@@ -59,5 +62,29 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
 ## 2006-2007:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/d46d3827-1d60-44c4-bcb0-4ff2da42f318)
+
+## 2004-2005:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/1d4133fc-f3de-46b2-b906-f0d25baed88a)
+
+## 2003-2004:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/c63998ab-05ab-471b-b5e5-9f348ef9077d)
+
+## 2002-2003:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/2f2a5b6f-a7c9-483e-9554-88eacb998e93)
+
+## 2001-2002:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/f9a2b874-b2ef-4530-a0da-d51c1fe94cd9)
+
+## 2000-2001:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/b183c38e-e7cb-46f6-a1b7-c75ec4983889)
+
+## 1999-2000:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/3543d0d7-35f8-4694-ab2b-fec2657dad38)
+
+## 1998-1999:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/888708f2-96d2-432e-837f-d9d8235e44a8)
+
+## 1997-1998:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/c50fe98b-bf0b-48c1-abd6-eb7bbb221461)
 
 
