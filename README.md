@@ -54,14 +54,25 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ## 2009-2010:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/6941d80b-bcc3-4b57-b731-ef8f94c3b0c9)
 
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/4c50d08a-5d52-4b84-8ffd-76ba8f7eaa32)
+
 ## 2008-2009:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/d0c06181-d473-45ab-9f9d-eab54d1659d4)
+
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/1b8bd493-77cd-475b-8e99-803452e21df2)
 
 ## 2007-2008:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/771dc4bc-1c59-4b56-897f-a7423e426144)
 
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/9ebc749a-53ec-4d3a-a628-d9aa60abae3c)
+
 ## 2006-2007:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/61548e3e-f4ee-487d-a2e7-db531c3cc8cc)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/d46d3827-1d60-44c4-bcb0-4ff2da42f318)
+
+## 2005-2006:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/27c93026-8d43-440d-80cf-8229d7de3173)
 
 ## 2004-2005:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/1d4133fc-f3de-46b2-b906-f0d25baed88a)
