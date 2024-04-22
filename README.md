@@ -1,5 +1,5 @@
 # De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai
-* Tuyển tập Đề Thi Toán Tuyển Sinh Vào Lớp 10 THPT Tỉnh Đồng Nai Triết sử dụng cho các lớp toán nâng cao, toán chuyên PTNK, toán không chuyên PTNK cho các bạn học sinh lớp 7, 8 và lớp 9, tối 2-4-6, 3-5-7, thứ 7-CN hàng tuần.
+* Tuyển tập Đề Thi Toán Tuyển Sinh Vào Lớp 10 THPT Môn Toán Và Môn Toán Chuyên Tỉnh Đồng Nai Triết sử dụng cho các lớp toán nâng cao, toán chuyên PTNK, toán không chuyên PTNK cho các bạn học sinh lớp 7, 8 và lớp 9, tối 2-4-6, 3-5-7, thứ 7-CN hàng tuần.
 * Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
@@ -12,7 +12,11 @@ https://goo.gl/maps/CghSicAvrM6nnYJ8A
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/0de1d4a3-6df0-48e5-85b1-198b22fa901b)
 
 ## 2021-2022:
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/af6ee92b-6c2d-4a4a-a523-36f9b121c784)
+
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/5923ac3f-09d6-48c8-b7f9-cfb9f7064515)
+
+![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/7b7d278a-e40e-403c-a400-0d1209cf3c28)
 
 ## 2020-2021:
 ![image](https://github.com/trietptm/De-Thi-Toan-Tuyen-Sinh-Vao-Lop-10-THPT-Dong-Nai/assets/526959/e93e84aa-b5ee-400d-b306-c805be1daf70)
